@@ -1,1 +1,0 @@
-# MINI-projet_gestion-management_DEBBAGH-KHALID-AMIR-ABDELLAH
